@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @22carlsonc
-- 👀 I’m interested in making a food recipe generator that is linked to scanning barcodes on your phone
+- 👀 I’m interested in making food easier
 - 🌱 I’m currently learning Marketing and Entrepreneurship
-- 💞️ I’m looking to collaborate on making a food recipe generator that is linked to scanning barcodes on your phone
+- 💞️ I’m looking to collaborate on making a food recipe generator that is linked to scanning barcodes on your phone (Willing to pay too!)
 - 📫 How to reach me 248-880-0975 and email is carlsoncaiden23@gmail.com
 
 <!---
